@@ -1,0 +1,1 @@
+Hi, I am Harika Satti, I am in my final year of my under graduation in computer science, I want to enhance my existing skills by creating live projects which will be helpful to the society through the world of computer science.
